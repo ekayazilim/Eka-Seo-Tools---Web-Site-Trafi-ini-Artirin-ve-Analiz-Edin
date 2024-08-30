@@ -47,7 +47,7 @@
 
 ## Ekran Görüntüsü
 
-![Eka SEO Tools Ekran Görüntüsü](https://www.ekasunucu.com/resources/uploads/software/0039e5d6cd551ae9adac2ac.png)
+![Eka SEO Tools Ekran Görüntüsü](0039e5d6cd551ae9adac2ac.png)
 
 ## İletişim
 
